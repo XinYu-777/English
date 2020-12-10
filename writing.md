@@ -25,3 +25,9 @@ e.g. Employees are encouraged by their supervisor's open-mindedness and will wor
 强: it is ... that ...
 倒装：Not only 
 半倒装：never, seldom, scarcely, under no circumstances, on no occasions, in no case
+e.g. Seldom does he get punished.
+Not only will they hone their skill, but also they can ...
+Only + 状语 + 半倒装   Only be receiving education can students be successful.
+ 
+
+
